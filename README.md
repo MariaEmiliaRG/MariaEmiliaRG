@@ -20,8 +20,8 @@ I'm part of the [ACM-W UNAM](https://sites.google.com/view/acm-w-cdmx/p%C3%A1gin
 
 If you need help, feel free to send me a message, I'll answer it as soon as possible 💖
 
-📌[LinnkedIn](https://www.linkedin.com/in/mariaemiliaramirezgomez) </br>
-📌Discord Emy#8464 </br>
+📌[LinkedIn](https://www.linkedin.com/in/mariaemiliaramirezgomez) </br>
+📌Discord MariaEmiliaRG#8464 </br>
 📌[GitHub](https://github.com/MariaEmiliaRG/) </br>
 📌Emilia.Ramirez@studentambassadors.com </br>
 
